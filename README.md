@@ -1,0 +1,2 @@
+# cursedphp
+aaaaaaaaaAAAAAAAAAAAAphpAAAAAAAAAAAAAAAA
